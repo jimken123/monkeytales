@@ -2,6 +2,8 @@
 
 It's a work in progress and these are the notes for possible use.
 
+## Coat
+
 ## Old Man
 
 Cirrus (Ci): Detached clouds in the form of white, dedicate filaments or white or mostly white patches or narrow bands. These clouds have fibrous (hair-like) appearance, or a silky sheen, or both.

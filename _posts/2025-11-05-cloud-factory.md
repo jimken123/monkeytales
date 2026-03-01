@@ -4,6 +4,8 @@ layout: post
 author: Jim Kennedy
 ---
 
+She pulled the collar of her wooly coat tighter around herself. The coat was immenses and as white as a bright moon. It was fluffy on the outside as well as on the inside. When she wore it she felt wrapped up like in a cloud herself. It made her twice a big as she really was and when she went to go out it brushed against both sides of the doorway at once. She felt that if she wore in inside out it would feel just the same, equally as warm.
+
 There wasn't a cloud in the sky, she knew, on her way down the garden path from her cottage. Even in the dark of the early morning, even without the moon on the ridge, she knew there were no cloud yet, there's wasn't a one. There wouldn't be even one until she got to the cloud factory in the village and started making them. For that was her job, every morning to prepare and release the clouds that would drift away whichever way the light autumn breeze would take them. The ground under her feet was crunchy, frozen. The frost on the grass like little clouds, she thought, amused at herself for seeing clouds and things about clouds everywhere. "Well, you do think about clouds all the time, Nimbus." she thought to herself. "It's to be expected when you are from the our family, the family in the cloud cottage."
 
 It wasn't yet light enough to see the factory ahead, its silver chimney, its long thin wooden building, the logpile outside. But she knew it was there, waiting to make clouds. Soon there would be deep, cottony ones, maybe wispy ones, or even little, fluffy clouds. She hadn't decided yet. 
@@ -29,6 +31,8 @@ Who would have made them? she huffed. Almost indignant at the idea that anyone e
 ## Starts up the machinery, technical details
 
 ## Cloud of the day
+
+Some days she didn't know which cloud to make, there were so many from which to choose. She had pictures on the wall of her room at home -she had pictures of every kind of cloud possible, and even some that were impossible. Most days she would choose from the pictures of clouds that were possible, but occasionally she would stand in front of the impossible clouds and, for fun, she would try to figure out which ones were maybe possible after all. Her favourite of those was definitely the sausage-dog cloud. A long cloud made of lots of tube clouds - tubes for the legs, a fat tube for the head, and of course a skinny tube for the tail. Tube clouds weren't difficult to make, but getting so many of them to work together to form a whole sausage dog? That was hard. And making it in a dog colour? Very difficult indeed. Sausage dogs were usually brown, or a very dark black, she thought. She didn't know how she would do that, but maybe some day. "Not today, but maybe someday."
 
 ## Daydreams favorite clouds
 
