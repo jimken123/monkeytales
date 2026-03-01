@@ -50,4 +50,7 @@ In his sleep, the old man scratched his nose, something he did when he was happy
 
 At the cloud factory, Nimbus see the last of the morning cloudbank float clear of the chimney. She sees the last of the wispy clouds go out the roof window. She uncranks the levers, shuts the reservoir, checks the logpile for tomorrow. Before she leaves she turns out hte lights. It's easy to forget this last thing because it's now daytime and the autumn sun starting to stream in will in time melt away the cloudbank.
 
+## Pink Cloud
+
+See photo for wishful dreaming cloud
 ## Cloudbank on the lake.
