@@ -7,12 +7,7 @@ author: Arthur Conan Doyle
 It is years since the incidents of which I speak took place, and yet
 it is with diffidence that I allude to them. For a long time, even
 with the utmost discretion and reticence, it would have been
-impossible to make the facts public; but now the principal person
-concerned is beyond the reach of human law, and with due suppression
-the story may be told in such fashion as to injure no one. It records
-an absolutely unique experience in the career both of Mr. Sherlock
-Holmes and of myself. The reader will excuse me if I conceal the date
-or any other fact by which he might trace the actual occurrence.
+impossible to make th
 
 ![](https://sherlock-holm.es/stories/html/pictures/prio-1.png)
 
