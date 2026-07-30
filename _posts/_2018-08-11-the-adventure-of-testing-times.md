@@ -20,7 +20,6 @@ glanced at it, and then, with an ejaculation of disgust, threw it on
 the floor. I picked it up and read:--
                               
 >Charles Augustus Milverton,                              
->Appledore Towers,  
 >Hampstead.  
 >Agent.  
                                
